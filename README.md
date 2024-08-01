@@ -1,4 +1,4 @@
-## ৶🚝७﹔ ★﹒Bem Vindo/a ao perfil da Lary ﹑﹒お﹒‹3
+## ৶☁️७﹔ ★﹒Bem Vindo/a ao perfil da Lary ﹑﹒お﹒‹3
 
 ![](https://64.media.tumblr.com/f8a7b74f0b48accc0b13d81cffaf9e4a/da64b185010a33f2-79/s540x810/a2d976199ea5dba4cbb300884bdfefd4efe0e5e7.gif)
 

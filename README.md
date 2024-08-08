@@ -7,7 +7,7 @@
 - (☆) Meu sonho é cursar uma faculdade de gastronomia ou música;
 - (☆) Estarei utilizando esse espaço para organização dos meus projetos;
 
-![](https://media.tenor.com/Yp-zhK8xWTgAAAAM/jujutsu-kaisen-nanami.gif)
+![](https://media.tenor.com/CUiPSjhjBTYAAAAi/moon-divider.gif)
 
 <!--
 **laryalvarenga/laryalvarenga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

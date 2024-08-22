@@ -3,7 +3,7 @@
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/98ead744-a515-4ae5-acdd-bd3f8581a3d7/dgrriix-618b2aba-2a75-469d-84fc-48d241852a51.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzk4ZWFkNzQ0LWE1MTUtNGFlNS1hY2RkLWJkM2Y4NTgxYTNkN1wvZGdycmlpeC02MThiMmFiYS0yYTc1LTQ2OWQtODRmYy00OGQyNDE4NTJhNTEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.TbyYi4snUqvG8QFD278zBXJDme4og7786A7AeQMMu-M)
 
 (★) Meu nome é Larissa Alvarenga, mas me chame de Lary! (⁠人⁠⁠´⁠∀⁠｀⁠)⁠｡⁠*ﾟ⁠+
-- (☆) Atualmente trabalho como atendente de cafeteria;
+- (☆) Atualmente estou procurando uma vaga de emprego em alguma área artística ou relacionada à gastronomia;
 - (☆) Meu sonho é cursar uma faculdade de gastronomia ou música;
 - (☆) Estarei utilizando esse espaço para organização dos meus projetos;
 
